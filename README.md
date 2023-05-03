@@ -7,7 +7,7 @@ A student in **LTUC** in **UI/UX** course
 
 <https://github.com/Roaaalhanbali>
 
-![ui/ux](https://www.peppersquare.com/wp-content/uploads/2022/07/UX-UI-Design-Blog@2x.png)
+![ui/ux](https://aelaschool.com/wp-content/uploads/2022/08/artigoQualadiferencaentreUXeUIDesign_01aaa69067bf7dd2a32f9fba1df84b12_2000-995x520.png)
 
 ## Mindset
 1. You should conceive the purpose of the software to right a goog one
